@@ -1,3 +1,3 @@
-[![Untitled581-1.png](https://i.postimg.cc/L8LPY5zk/Untitled581-1.png)](https://postimg.cc/hX4vNSZh)
+[![Untitled652-20251108194716.png](https://i.postimg.cc/JhFSx9PN/Untitled652-20251108194716.png)](https://postimg.cc/FfjPsntz)
 
-[NARTT DCC :3](https://discord.gg/Py4p4RvDqH)
+   I'm often busy these days with focusing into my life and practicing my artstyle and frankly I've been doing most of my time practicing a poem for the senior graduation attendance and geeking into deltarune for most of my time.  And YES, my strawpage is coming soon who knows 💔💔💔,,,
