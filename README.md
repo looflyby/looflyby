@@ -7,7 +7,7 @@
    
 
 
- [![Untitled827-20260918125801.png](https://i.postimg.cc/pLP5HTwy/Untitled827-20260918125801.png)](https://postimg.cc/kBhgNnXd[/https://looflyrampo.atabook.org/)
+ [![Untitled827-20260918125801.png](https://i.postimg.cc/pLP5HTwy/Untitled827-20260918125801.png)](https://looflyrampo.atabook.org/)
 <div align=center>
 
 
